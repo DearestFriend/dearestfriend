@@ -1,5 +1,5 @@
--  Hiy I'm @GAYPUFFER Theh gayezt
-- I go by Puffer, GoodPuffer, BadPuffer, or P00B.
+-  Hiy I'm Saddenedkoi Theh gayezt fizh out there
+- I go by Koi, Saddened, Saddenedkoi, Puffer, GoodPuffer, BadPuffer, or P00B.
 - i likhe roblox mythz, catz, and regretevator
 - I normahlly hang arouhnd peohple i knohw if im not arouhnd anyone then y0u may interact /w me
 - :3
