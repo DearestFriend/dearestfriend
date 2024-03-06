@@ -3,7 +3,8 @@
 - i likhe sky cotl, catz, regretevator, and camp camp i alzo play roblox zometimez
 - I normahlly hang arouhnd peohple i knohw if im not arouhnd anyone then y0u may interact /w me
 - :3
- ![image](https://github.com/GAYPUFFER/GAYPUFFER/assets/152246249/7a8319a5-5092-4c73-aeab-35b47369caf0)
+ ! ![image](https://github.com/Davidcampcampbell/GAYPUFFER/assets/152246249/a8f0b8e5-9f0a-4354-b3a3-0f2e734a67c3)
+
 
 
 <!---
