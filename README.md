@@ -1,13 +1,12 @@
--  Hiy I'm David Theh gayezt guy out there
-- I go by Koi, Puffer, David or P00B.
-- i likhe sky cotl, catz, regretevator, and camp camp i alzo play roblox zometimez
-- I normahlly hang arouhnd peohple i knohw if im not arouhnd anyone then y0u may interact /w me
+-  Hiy I'm Dynamite Theh gayest out there.
+- I go by Dynamite David or P00B.
+- i likhe sky cotl, cats, regretevator, and camp camp, object shows, objectified. I alzo play roblox sometimes im mostly on vrchat more.
+- I normally hang around people i know, if im not around anyone then you may interact /w me.
 - :3
- ! ![image](https://github.com/Davidcampcampbell/GAYPUFFER/assets/152246249/a8f0b8e5-9f0a-4354-b3a3-0f2e734a67c3)
-
+   https://static.wikia.nocookie.net/objectified-comic/images/5/55/Dynamite_cast.png/revision/latest?cb=20230909211235
 
 
 <!---
-GAYPUFFER/GAYPUFFER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
