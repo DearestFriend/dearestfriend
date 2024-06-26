@@ -2,13 +2,14 @@
 
 
 
--  Hey I'm Uzi, Also known as a few other names which im not comfortable with at the moment.
+-  Hey I'm Shiro Ito or Uzi, Also known as a few other names which im not comfortable with at the moment.
   
 - i like sky cotl, cats, regretevator, and Murder Drones, object shows, objectified, the lego movie and alot more!. I alzo play roblox sometimes im mostly on vrchat more.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - :3
- ![image](https://github.com/SolverUziDoorman/Dynamite-short-info/assets/152246249/0eef1451-d859-46b8-9a5f-a26ae0d34fda)
+![image](https://github.com/DearestFriendShiroIto/Uzi-short-info/assets/152246249/98eede1c-2243-4438-9003-5205791c85e3)
+
 
 i'd recommend looking through my strawpage or carrd to know more info about me.
 
