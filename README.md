@@ -2,7 +2,7 @@
 
 
 
--  Hey I'm Shiro Ito or Uzi, Also known as a few other names which im not comfortable with at the moment.
+-  Hey I'm Shiro Ito, Shiro, or Ito. Also known as a few other names which im not comfortable with at the moment.
   
 - i like sky cotl, cats, regretevator, and Murder Drones, object shows, objectified, the lego movie and alot more!. I alzo play roblox sometimes im mostly on vrchat more.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
