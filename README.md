@@ -11,7 +11,7 @@
 ![image](https://github.com/DearestFriendShiroIto/Uzi-short-info/assets/152246249/98eede1c-2243-4438-9003-5205791c85e3)
 
 
-i'd recommend looking through my strawpage or carrd to know more info about me.
+i'd recommend looking through my strawpage to know more info about me.
 
 <!---
 Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
