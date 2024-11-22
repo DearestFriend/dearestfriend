@@ -2,16 +2,16 @@
 
 
 
--  Hey I'm Shiro Ito, Shiro, or Ito. Also known as a few other names which im not comfortable with at the moment.
+-  Hey I'm Taco or Bot. 
   
-- i like sky cotl, cats, regretevator, and Murder Drones, object shows, objectified, the lego movie and alot more!. I alzo play roblox sometimes im mostly on vrchat more.
+- i like cats, and Murder Drones, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - :3
-![image](https://github.com/DearestFriendShiroIto/Uzi-short-info/assets/152246249/98eede1c-2243-4438-9003-5205791c85e3)
+![image](![image](https://github.com/user-attachments/assets/72f78367-1bfb-4624-8b59-38ccee7dbe1e)
+)
 
 
-i'd recommend looking through my strawpage to know more info about me.
 
 <!---
 Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
