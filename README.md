@@ -1,4 +1,4 @@
--[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31ofyqlkho6h6uzxsh4ac4uafm5a&cover_image=true&theme=novatorem&show_offline=false&background_color=c326fd&interchange=true&bar_color=970ca1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31ofyqlkho6h6uzxsh4ac4uafm5a&cover_image=true&theme=novatorem&show_offline=false&background_color=c326fd&interchange=true&bar_color=970ca1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
