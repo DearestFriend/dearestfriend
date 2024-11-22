@@ -8,8 +8,7 @@
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - :3
-- [https://i.pinimg.com/474x/31/7a/77/317a77d3154cc17e995adabbb650919d.jpg](https://i.pinimg.com/474x/31/7a/77/317a77d3154cc17e995adabbb650919d.jpg)
-
+  ![image](https://github.com/user-attachments/assets/69557618-3a6a-484a-9f1e-08788068cb45)
 
 
 <!---
