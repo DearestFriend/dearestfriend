@@ -7,7 +7,7 @@
 - i like cats, bear* and bear (alpha) roblox games, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
-- :3
+- blerg
   !![image](https://github.com/user-attachments/assets/b7218660-c6b1-45b8-855c-f996d4e6c5ec)
 
 
