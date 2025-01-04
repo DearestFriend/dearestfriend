@@ -8,7 +8,7 @@
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - :3
-  ![image]([https://github.com/user-attachments/assets/69557618-3a6a-484a-9f1e-08788068cb45](https://static.wikia.nocookie.net/roblox-bear-content/images/0/00/Shiro2.png)
+  !![image](https://github.com/user-attachments/assets/b7218660-c6b1-45b8-855c-f996d4e6c5ec)
 
 
 <!---
