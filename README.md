@@ -2,13 +2,13 @@
 
 
 
--  Hey I'm Taco or Bot. 
+-  Hey I'm Shiro ito, or Ito. 
   
-- i like cats, and Murder Drones, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
+- i like cats, bear* and bear (alpha) roblox games, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - :3
-  ![image](https://github.com/user-attachments/assets/69557618-3a6a-484a-9f1e-08788068cb45)
+  ![image]([https://github.com/user-attachments/assets/69557618-3a6a-484a-9f1e-08788068cb45](https://static.wikia.nocookie.net/roblox-bear-content/images/0/00/Shiro2.png)
 
 
 <!---
