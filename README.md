@@ -2,9 +2,9 @@
 
 
 
--  Hey I'm Shiro ito, or Ito. 
+-  Hey I'm Two Time, or Shiro. 
   
-- i like cats, bear* and bear (alpha) roblox games, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
+- i like cats, bear* and bear (alpha) roblox games, Forsaken roblox, object shows such as, Inanimate Insanity, bfdi, bfdia, bfb, tpot, objectified, also.. the lego movie and alot more!.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - blerg
