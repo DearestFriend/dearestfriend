@@ -8,8 +8,8 @@
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
 - blerg
-  !![image](https://github.com/user-attachments/assets/b7218660-c6b1-45b8-855c-f996d4e6c5ec)
-
+  !!
+  ![image](https://github.com/user-attachments/assets/0e973a51-156f-49f7-b3d8-23b83954012e)
 
 <!---
 Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
