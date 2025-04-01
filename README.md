@@ -11,7 +11,7 @@ I do really like roblox bear as said before dont jump me if i randomly talk abou
 - 
 - blerg
   !!
-  ![image](https://github.com/user-attachments/assets/0e973a51-156f-49f7-b3d8-23b83954012ehttps://media.discordapp.net/attachments/1305660594153848895/1351265915618197544/RobloxPlayerBeta_4PoZssGZU2.gif?ex=67ec34f3&is=67eae373&hm=d5ecc0a95301b4d6c8c8023cccc2460f483374d61c64da40fbb8fc97d31e6a9c&=&width=723&height=711)
+  ![image](https://media1.tenor.com/m/ti5s1_w7eb4AAAAC/shiro-ito.gif)
 
 <!---
 Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
