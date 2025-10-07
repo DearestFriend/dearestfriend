@@ -14,7 +14,5 @@
   !!
   ![image](https://media1.tenor.com/m/ti5s1_w7eb4AAAAC/shiro-ito.gif)
 
-<!---
-Dynamush is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+  you should totally read this [comic ](https://www.webtoons.com/en/canvas/starving-for-attention/list?title_no=928708)
+
