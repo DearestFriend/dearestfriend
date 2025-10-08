@@ -4,10 +4,10 @@
 
 -  Hey I'm Shiro or Ito. 
   
-- i like cats, bear* and bear (alpha) roblox games, object shows, the lego movie, murder drones and alot more!.
+- i like cats, bear* and bear (alpha) roblox games, the lego movie, and alot more!.
 - I normally hang around people i know, if im not around anyone then you may interact /w me or ill just randomly interact if i feel like interacting with you.
 - 
-- I do really like roblox bear as said before dont jump me if i randomly talk about it💔
+- 
 - 
 - 
 - blerg
